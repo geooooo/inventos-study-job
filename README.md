@@ -1,1 +1,1 @@
-Мои исследовательские работы Инвентос
+My research papers Inventos
